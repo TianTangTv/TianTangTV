@@ -1,22 +1,20 @@
-# 看片 - 最新地址 页
+# erotic - latest address
+
 
 请收藏此页面（重要）
 看片站长建议狼友 Ctrl+D 收藏本页面，本页随时更新最新地址，永远找到回家路
 
-[看片最新地址一 点击此处](https://tt22.tv)
+[Click here for the latest video viewing address 1] (https://tiantang.tv)
 
-[看片最新地址二 点击此处](https://tt23.tv)
+[Click here for the latest address 2 of watching the film](https://tiantang.me)
 
-[看片最新地址三 点击此处](https://tt24.tv)
+[Click here to watch the latest address three] (https://tiantang.one)
 
-[看片最新地址四 点击此处](https://tt25.tv)
+[Click here to watch the latest address 4] (https://datiantang.com)
 
-[看片最新地址五 点击此处](https://tt26.tv)
+[Click here to watch the latest address five] (https://tiantang.de)
 
-看片提醒您请注意，永久地址一定要加 https
+Watch the video to remind you, please note that the permanent address must add https
 
-[如网站被屏蔽，请下载 chrome 浏览器](https://dl.8xiy4.xyz/chrome_93.0.4577.82.apk)
 
-看片邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 datiantangtv@gmail.com
-
-喜欢的狼友 请顺手 star 一下
+Retrieval of email address for film viewing: If none of the above addresses are available, please send an email to datiantangtv@gmail.com for the latest address
