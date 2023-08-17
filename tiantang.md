@@ -1,8 +1,8 @@
 # erotic - latest address
 
 
-请收藏此页面（重要）
-看片站长建议狼友 Ctrl+D 收藏本页面，本页随时更新最新地址，永远找到回家路
+Please bookmark this page (important)
+This page is updated with the latest address at any time, and you will always find your way home
 
 [Click here for the latest video viewing address 1] (https://tiantang.tv)
 
